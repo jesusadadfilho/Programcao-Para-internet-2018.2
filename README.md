@@ -7,7 +7,7 @@ Jesus Abrahão Adad Filho.
 jesusadadfilho(Instagram), jesusadadfilho(Facebook), @jesusadadfilho1(Twitter), (86)999589582(Telegram), (86)999589582(whatsapp), jesus adad filho(linkedin).
 
 ### Habilidades: 
-Sou tecnico em eletrônica, já mexi com desenvolvimento de jogos(Unreal) e aplicativos(Android Studio).
+Sou tecnico em eletrônica, já mexi com desenvolvimento de jogos(Unreal) e aplicativos(Android Studio), tenho conhecimento sobre python, c/c++ e java.
 
 ### Interesses acadêmicos e profissionais: 
 Tenho interrese tanto na area da robotica quanto no desenvolvimento de games 
